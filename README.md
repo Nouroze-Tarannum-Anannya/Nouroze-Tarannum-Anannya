@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **nourozetarannum@gmail.com**
 
-- 📄 My resume [https://drive.google.com/file/d/1ycwKKhHLTivGaycPMfAIbeu1pGOx9DB2/view?usp=sharing](https://drive.google.com/file/d/1ycwKKhHLTivGaycPMfAIbeu1pGOx9DB2/view?usp=sharing)
+- 📄 My resume [Nouroze Tarannum Anannya-CV](https://drive.google.com/file/d/1HVGE7NhAbor-jtEa2dmRVNXgaZTjPiuL/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
